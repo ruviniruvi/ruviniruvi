@@ -1,6 +1,6 @@
 
 
-![Add a subheading](https://user-images.githubusercontent.com/63685062/155573803-c8dd30dd-9ee1-4053-9d5a-469843e7fd50.png)
+![Pastel Pink Elegant Fashion LinkedIn Banner](https://user-images.githubusercontent.com/63685062/155585820-86bd9d26-48f2-4c18-803d-61445eccb0b8.png)
 
 <!--
 **ruviniruvi/ruviniruvi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
